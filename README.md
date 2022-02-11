@@ -1,1 +1,1 @@
-NSMBW speedrunne and proud creator of NSUEABLD
+NSMBW speedrunner and proud creator of NSUEABLD
